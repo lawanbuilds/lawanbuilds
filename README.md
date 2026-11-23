@@ -90,6 +90,10 @@ AI-powered PDF knowledge assistant exploring document interaction and intelligen
 
 - **Email:** [lawan.goud.dev@gmail.com](mailto:lawan.goud.dev@gmail.com)
 - **GitHub:** [@lawanbuilds](https://github.com/lawanbuilds)
+- **LinkedIn:** [Lawan Kumar Bairi](https://www.linkedin.com/in/your-username)
+- **YouTube:** [@lawanbuilds](https://www.youtube.com/@your-handle)
+- **Instagram:** [@lawan_builds](https://www.instagram.com/lawan_builds)
+- **Facebook:** [Lawan Kumar Bairi](https://www.facebook.com/your-username)
 
 ---
 
